@@ -1,4 +1,4 @@
-
+Experience one tap like never before with one tap smart Script, the #1 Script. Includes one-hit kill and fly for unbeatable performance.
 
 
 
